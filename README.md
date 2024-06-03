@@ -12,4 +12,5 @@ Meu nome é Fátima Nycolle
   
   @ny_rodrigues_
 
-![](![image](https://github.com/Nycolle15/Nycolle15/assets/171029612/5fb6509c-db46-431a-a1a7-8853564b9079))
+
+![image](https://github.com/Nycolle15/Nycolle15/assets/171029612/e4e14fa9-680e-4b82-b0ec-d9599aed8fb4)
